@@ -1,1 +1,1 @@
-# JUH-2.0
+# Para-minha-querida-e-amada-rosa
